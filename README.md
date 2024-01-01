@@ -1,0 +1,1 @@
+latihan dari dicoding cukazzz
